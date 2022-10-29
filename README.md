@@ -1,0 +1,2 @@
+- Hi, I’m @EggCakes27 but you can also call me sho
+- he/him
